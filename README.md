@@ -1,6 +1,4 @@
 ###  Amrish
-#### UI/UX Designer
-I am a dedicated UI/UX designer with a passion for creating elegant and user-centric digital experiences. I strive to deliver visually appealing and intuitive solutions. My goal is to blend creativity with functionality, crafting designs that resonate with users and exceed expectations.
 
 
 
